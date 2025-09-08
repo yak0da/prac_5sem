@@ -1,1 +1,1 @@
-# prac_5sem
+# prac | 5sem
